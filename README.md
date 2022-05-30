@@ -1,1 +1,0 @@
-# woonpunt-elke-dag-huiskamer-drilboor-geluidsoverkast-terrorisme
